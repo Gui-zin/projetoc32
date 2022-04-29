@@ -1,0 +1,1 @@
+# pinko1-modelo
